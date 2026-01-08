@@ -6,3 +6,5 @@ Didac Vega
 
 
 Enllaç Informe final: https://docs.google.com/document/d/1qzKMqQn0MOCpiyP9CHSqqntS2w4NHRlwhwToCbDLln4/edit?usp=sharing
+
+didacvega10-zlyrj.wordpress.com
